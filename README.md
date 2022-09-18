@@ -1,0 +1,4 @@
+- 👋 Merhaba, ben Deniz
+- 👀 Minecraft projeleriyle ilgileniyorum.
+- 🌱 Java öğrenmeye çalışıyorum.
+- 📫 Bana ulaşmak için discord hesabımı kullanabilirsin.. 🧚♀ Deniz⁷⁰⁷#9328
